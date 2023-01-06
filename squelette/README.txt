@@ -1,4 +1,4 @@
-IRAKOZE OLIVE AUDREY
+
 TCHIMOU CHO JOSEE ALVINE
 
 Description du jeu. 
